@@ -1,2 +1,2 @@
 # Talk2
-invite a talk
+ Invite H C for a meeting to talk 
