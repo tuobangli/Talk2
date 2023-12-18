@@ -1,2 +1,2 @@
 # Talk2
-6 don't talk
+invite a talk
