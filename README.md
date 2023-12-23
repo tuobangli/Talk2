@@ -1,2 +1,2 @@
-# Talk2
- Invite H C for a meeting to talk 
+# 
+still the original plan, back to HK on Tuesday, and then back to my home on Wednesday.
